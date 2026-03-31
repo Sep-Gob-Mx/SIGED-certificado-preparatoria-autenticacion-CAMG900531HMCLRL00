@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAMG900531HMCLRL00
+CAMG900531HMCLRL00
